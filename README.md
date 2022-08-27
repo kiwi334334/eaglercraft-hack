@@ -1,2 +1,0 @@
-# eaglercraft-hack
-cool
